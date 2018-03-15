@@ -1,0 +1,1 @@
+# QC-Shopping-Guide-Great-Helper
